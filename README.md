@@ -10,4 +10,11 @@
  - 📫 Como entrar em contato comigo: ...
  - 😄 Pronomes: Ele/dele
  - ⚡ Curiosidade: nasci dia 07 do 08 de 2008
-   
+
+
+
+### Você pode entrar em contato comigo em:
+
+
+  allanvagnermartins@gmail.com
+  @allan.of.king
